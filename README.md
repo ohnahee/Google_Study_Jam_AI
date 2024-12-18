@@ -1,1 +1,1 @@
-# Google_Study_Jam_AI-
+# Google_Study_Jam_AI
